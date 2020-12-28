@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... LinkedIn
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I have made lot of mistakes in my life still I keep smiling :)
--->
